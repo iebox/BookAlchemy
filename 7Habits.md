@@ -32,6 +32,20 @@ Finally, the seventh habit is one of renewal and continual improvement, that is,
 
 
 
+###      PRIVATE VICTORY
+
+- HABIT 1          Be Proactive : Principles of Personal `Vision`
+	> I know of no more encouraging fact than the unquestionable ability of man to elevate his life by conscious endeavor. - HENRY DAVID THOREAU
+
+
+- HABIT 2          Begin with the End in Mind : Principles of personal `Leadership`
+ 	> What lies behind us and what lies before us are tiny matters. compared to what lies within us. - OLIVER WENDELL HOLMES
+
+
+
+- HABIT 3          Put First Things First : Principles of Personal `Management`
+
+
 ## Habit 1: Be Proactive
 
 - Proactive people focus their efforts in the Circle of Influence. They work on the things they can do something about. The nature of their energy is positive, enlarging and magnifying, causing their Circle of Influence to increase.
@@ -54,4 +68,10 @@ Finally, the seventh habit is one of renewal and continual improvement, that is,
 
 - Principles always have natural consequences attached to them. There are positive consequences when we live in harmony with the principles. There are negative consequences when we ignore them. But because these principles apply to everyone, whether or not they are aware, this limitation is universal. And the more we know of correct principles, the greater is our personal freedom to act wisely.
 
+
+***
+
+- Now, in the early stages—when a person is new to an organization or when a child in the family is young—you can pretty well give them a goal and they’ll buy it, particularly if the relationship, orientation, and training are good.
+
+- But when people become more mature and their own lives take on a separate meaning, they want involvement, significant involvement. And if they don’t have that involvement, they don’t buy it. Then you have a significant motivational problem which cannot be solved at the same level of thinking that created it.”
 
