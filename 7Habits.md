@@ -46,7 +46,7 @@ Finally, the seventh habit is one of renewal and continual improvement, that is,
 - HABIT 3          Put First Things First : Principles of Personal `Management`
 
 
-## Habit 1: Be Proactive
+## Habit 1: Be Proactive：Personal `Vision`
 
 - Proactive people focus their efforts in the Circle of Influence. They work on the things they can do something about. The nature of their energy is positive, enlarging and magnifying, causing their Circle of Influence to increase.
 
@@ -58,7 +58,7 @@ Finally, the seventh habit is one of renewal and continual improvement, that is,
 
 
 
-## Habit 2: Begin with the End in Mind
+## Habit 2: Begin with the End in Mind： personal `Leadership`
 
 - Principles don’t react to anything. They don’t get mad and treat us differently. 
 
@@ -75,3 +75,18 @@ Finally, the seventh habit is one of renewal and continual improvement, that is,
 
 - But when people become more mature and their own lives take on a separate meaning, they want involvement, significant involvement. And if they don’t have that involvement, they don’t buy it. Then you have a significant motivational problem which cannot be solved at the same level of thinking that created it.”
 
+
+
+## HABIT 3          Put First Things First : Personal `Management`
+
+
+##### Habit 1 says, “You’re the creator. You are in charge.” 
+
+It’s based on the four unique human endowments of imagination, conscience, independent will, and, particularly, self-awarness. It empowers you to say, “That’s an unhealthy program I’ve been given from my childhood, from my social mirror. I don’t like that ineffective script. I can change.”
+
+##### Habit 2 is the first or mental creation. 
+It’s based on imagination—the ability to envision, to see the potential, to create with our minds what we cannot at present see with our eyes; and conscience—the ability to detect our own uniqueness and the personal, moral, and ethical guidelines within which we can most happily fulfill it. It’s the deep contact with our basic paradigms and values and the vision of what we can become.
+
+##### Habit 3, then, is the second creation, the physical creation. 
+
+It’s the fulfillment, the actualization, the natural emergence of Habits 1 and 2. It’s the exercise of independent will toward becoming principle-centered. It’s the day-in, day-out, moment-by-moment doing it.
