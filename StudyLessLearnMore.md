@@ -11,3 +11,14 @@
 	* Arbitrary	* Opinion	* Process	* Concrete	* Abstract	* How to Use the Five Categories
 * Why Your Classes Are Boring 
 * Goals for Learning
+
+
+## Part II: Holistic Learning Techniques 92
+* Acquiring Information 
+	* Speed Reading		* Active Reading	* Flow-Based Notetaking* Linking Ideas 114	* Metaphor 	* Visceralization 
+	* Diagraming		* Concept Diagrams 		* Flow Diagrams 		* Image Diagrams
+* Handling the Arbitrary
+	* The Link Method		* Steps for Using the Link Method		* Challenges With the Link Method	* The Peg Method 
+		* Information Compression		* Mnemonics		* Picture Linking 		* Notes Compression
+* Extending Ideas 
+	* Practical Usage	* Model Debugging	* Project-Based Learning* Review of Holistic Learning Techniques
