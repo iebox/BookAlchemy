@@ -22,3 +22,8 @@
 		* Information Compression		* Mnemonics		* Picture Linking 		* Notes Compression
 * Extending Ideas 
 	* Practical Usage	* Model Debugging	* Project-Based Learning* Review of Holistic Learning Techniques
+## Part III: Beyond Holistic Learning 185
+* The Productive Student 186	* Manage Your Energy 	* Don't “Study”	* Nuke Procrastination 	* Batching	* Be Organized
+	
+* Educate Yourself 
+	* Structuring Learning Habits	* Overcoming the Frustration Barrier	* Setting Learning Goals	* Summary & Self-Education Resources
