@@ -1,7 +1,8 @@
 # 1.1
 
 
-<pre>
+``` java
+
 import java.util.Arrays;
 public class BinarySearch
 {
@@ -33,8 +34,8 @@ public class BinarySearch
                 StdOut.println(key);
             }
         }
-    } 
+    }
 
 }
     
-</pre>
+```
