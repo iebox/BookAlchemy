@@ -128,3 +128,15 @@ If something got in my way. So it had to go. The times have changed. To move wit
 A clear defined a problem is a problem half solved. For instance, the act of deciding to seek psychiatric attention in itself represents a honest acknowledgement of the self-image “I’m not OK, I need help." It's not a sign of weakness, but a sign of courage.
 
 I'm ready to let the old and outdated part of me go, to make room for renewal.
+
+
+## 14. Renunciation and Rebirth
+Awareness of what presents itself to me involves a double movement of attention: silencing the familiar and welcoming the strange.
+
+> - “Throughout the whole of life one must continue to learn to live,”
+> - “and what will amaze you even more, throughout life one must learn to die.”
+<div style="text-align: right"> - said Seneca two millennia ago. </div>
+
+Because there is a vacuum of competence in the world which must be filled. You must forge for yourself an identity before you can give it up, by starting at the beginning and go through the middle.
+
+Discipline has been defined as a system of techniques of dealing constructively with the pain of problem-solving—instead of avoiding that pain—in such a way that all of life’s problems can be solved.
